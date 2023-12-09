@@ -1,4 +1,6 @@
 ### Hi there 👋
+![itaxhi](https://github.com/ITACHI004/ITACHI004/assets/128301610/425203f4-e46e-481f-9e11-78e3d0ab1850)
+![itaxhi](https://github.com/ITACHI004/ITACHI004/assets/128301610/d8f8c4e6-a555-4f89-ae53-d109357de089)
 
 <!--
 **ITACHI004/ITACHI004** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
